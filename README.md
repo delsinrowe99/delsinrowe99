@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @delsinrowe99
-- 👀 I’m interested in codng and gaming
+- 👀 I’m interested in coding and gaming
 - 🌱 I’m currently learning coding
 -
 - 💞️ I’m looking to collaborate on ...
